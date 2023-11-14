@@ -8,6 +8,5 @@ Here are some ideas to get you started:
 - 🌱 atualmente estou estudando no tupy
 - 💬 pergunte-me sobre jogos filmes, shifthin entre outras coisas que eu goste
 - 📫 entre em contato cmg entre os links que eu coloquei na descrição desse perfil
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronome: ele/Dele
 -->
